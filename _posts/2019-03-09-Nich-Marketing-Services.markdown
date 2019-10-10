@@ -11,10 +11,12 @@ categories:
 
 
 
-[Instagram @ Nich](https://instagram.com/nirholas)
+[Instagram @Nich](https://instagram.com/nich)
+[Instagram @Nirholas](https://instagram.com/nirholas)
 
-[Instagram @ Nich][https://instagram.com/nich]
+
+[Twitter @Bothersome](https://twitter.com/bothersome)
 
 
-[Twitter @ Nich][https://twitter.com/bothersome]
 
+uALREADY LLC x Nicholas Resendez x Nich
